@@ -1,4 +1,6 @@
 Tenteu stanislava.marusova@gmail.com
+Kara karolinakristofova3@gmail.com
+
 vedla mna sedi KarolinaOty a som zabudla jej mail
 
 uiuiuiuiuiuiuiuiuiu AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAh
