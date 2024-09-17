@@ -3,4 +3,4 @@ vedla mna sedi KarolinaOty a som zabudla jej mail
 
 uiuiuiuiuiuiuiuiuiu AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAh
 
-vfdrhdeioshubcrgfjseiehwvgfhucsjixawhgdesfrgve
+vfdrhdeioshubcrgfjseiehwvgfhucsjixawhgdesfrgveswdefrv
